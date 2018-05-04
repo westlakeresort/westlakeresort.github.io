@@ -1,1 +1,0 @@
-# westlakeresort.github.io
